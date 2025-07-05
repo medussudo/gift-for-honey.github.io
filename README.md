@@ -1,3 +1,3 @@
 # Gift for Honey <3
 
-nu e facut in totalitate de mine, asum asta :(
+inspired from a yt video of cute gifts for your partner.
